@@ -1,1 +1,0 @@
-# 34_Kalnyk_Dmytro
